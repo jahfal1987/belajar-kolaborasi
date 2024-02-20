@@ -1,5 +1,5 @@
 # belajar-kolaborasi
-belajar itu seru lho <br>
+belajar itu seru lho hahaha <br>
 **contohnya?** <br>
 *kimia* <br>
 *fisika* <br>
